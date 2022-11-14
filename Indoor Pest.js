@@ -32,7 +32,8 @@ becasue it was also in the bedroom where most people do not get a chance to wake
 </ul>
 <p> Here is a link about the frogs </p>
 <h3> Rats or Mice </h3>
-<p> Some animals should not be seen when not alive there was a mice that was like this. It was kept in a place that need to be witnessed, its completely return to its maker. </p>
+<p> Some animals should not be seen when not alive there was a mice that was like this. It was kept in a place that need to be witnessed, its completely return to its maker.
+On top of that I have to take care of the dogs. That are getting bigger that ever before.</p>
 </section>
 </body>
 </header>
